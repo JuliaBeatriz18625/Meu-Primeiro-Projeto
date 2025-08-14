@@ -1,1 +1,1 @@
-# Trabalho de Adrian Candelario, Julia Beatriz e Rafhaela Loubet.
+# Trabalho de Adrian Candelario, Julia Beatriz, Rafhaela Loubet e Maria Eduarda
